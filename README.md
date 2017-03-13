@@ -1,2 +1,2 @@
 # ideas-abound
-Where the world meet Mister Kolyvanov.
+Where the world meets Mister Kolyvanov.
